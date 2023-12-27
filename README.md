@@ -1,0 +1,1 @@
+So basicly mista just took netflix and made a gui in a new roblox game using the netflix system so it would look like it was oxlo even tho it was just plain old netflix with a new ui over it, it still needed tools and everything and for all the poor buyers out there I am sorry for you.
